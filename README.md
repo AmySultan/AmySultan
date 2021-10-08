@@ -1,4 +1,4 @@
-- 👋 Hello, some say that I am too old for comics. But I don't agree, that's all the inspiration and greatest minds show their talents.
+- 👋 Hello, some say that I am too old for comics. But I don't agree, that's all the inspirations and greatest minds show their talents.
 - 👀 Nothing to brag but yeah, I'm a lefty and interested in graphic designs.
 - 🌱 Still processing the concept and still trying to say it our loud that I’m a full stack developer.
 
